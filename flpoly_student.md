@@ -1,4 +1,4 @@
-## Rei Second Account
+## Rei Student Account
 
 ### Term Year 
 
