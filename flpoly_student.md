@@ -1,4 +1,4 @@
-## First Name Last Name
+## Rei Miner
 
 ### Term Year 
 
